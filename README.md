@@ -1,2 +1,2 @@
 # The-AI-and-the-Heart
-Echoedlightning's Steam Deck Audio Louder Packs
+Echoedlightning's Steam Deck Audio Packs
